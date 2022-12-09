@@ -1,2 +1,1 @@
-Welcome to Rainbow Gems And Jewellers.
-Finest quality astrological gemstones.
+<img src ="https://bafkreiejbuqtrwdwip77sfc2c62vxp7tgcb5p5b7hsxosnd72kpkxrzqni.ipfs.nftstorage.link/"> 
